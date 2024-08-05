@@ -6,7 +6,7 @@ Members:
   
     Samantha Barola
   
-    Cleo Ann Samnbayon
+    Cleo Anne Sambayon
   
     Joymay Anne Lador
   
